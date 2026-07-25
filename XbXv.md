@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月25日 14时30分24秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>知名私募组团调研MR产业链标的，新品备货数据曝光</h3><br><p>国内AI算力网络国家枢纽节点全部建成，实现算力全国调度。<br><br> | 来源：<code>s9tattoo.com
+</code></p><br><br><h3>机构资金集中买入华域汽车7800万，零部件龙头获抱团</h3><br><p>钯价连续上涨9%，汽车尾气催化板块盈利改善。<br><br> | 来源：<code>yilianyoumeng.com
+</code></p><br><br><h3>上半年全国新能源汽车电池出口同比增长40%</h3><br><p>储能电池价格小幅上涨3%，储能产业链价格体系企稳。<br><br> | 来源：<code>www.zhongyichufang.cn
+</code></p><br><br><h3>养老金新进虚拟电厂标的，首次布局电力信息化赛道</h3><br><p>医美监管政策优化，医美消费标的全线拉升。<br><br> | 来源：<code>www.muzhien.cn
+</code></p><br><br><h3>牧原股份养殖成本下降，单季业绩预告环比扭亏</h3><br><p>全国体育场馆免费或低收费开放，年接待群众超10亿人次。<br><br> | 来源：<code>www.jiezhishan.cn
+</code></p><br><br><h3>世界大学排名发布，清华北大首次双双跻身全球前十</h3><br><p>除草剂价格单月上涨15%，农药龙头盈利修复超预期。<br><br> | 来源：<code>www.qinjin365.cn
+</code></p><br><br><h3>央行下调MLF利率10个基点，引导市场利率下行</h3><br><p>派能科技户用储能电池技术：全球户用储能龙头的壁垒。<br><br> | 来源：<code>www.siqiyes.cn
+</code></p><br><br><h3>美国通胀回落至2.5%，为后续进一步降息打开空间</h3><br><p>产业基金组团调研后集中增持存储模组龙头，合计投入超7亿。<br><br> | 来源：<code>www.siqixue.cn
+</code></p><br><br><h3>煤炭价格企稳回升8%，煤炭高股息标的盈利稳定</h3><br><p>电感产品价格上涨3%，电子全产业链盈利优化。<br><br> | 来源：<code>www.cunyinbao.cn
+</code></p><br><br><h3>泸州老窖放量上涨4.4%，国窖1573批价稳步上行</h3><br><p>北向资金单日扫货五粮液2.3亿，白酒龙头获外资持续流入。<br><br> | 来源：<code>www.iamz.cn
+</code></p><br><br><h3>碳化硅衬底标的登陆科创板，6英寸衬底产能全球领先</h3><br><p>宁沪高速优质路网资产：长三角公路龙头的长期配置价值。<br><br> | 来源：<code>www.yifanwu.cn
+</code></p><br><br><h3>保险资管连续增持光伏胶膜标的，长期配置光伏核心资产</h3><br><p>丹麦经济稳健增长，风电产业全球领先。<br><br> | 来源：<code>www.michaelyang.cn
+</code></p><br><br><h3>中国平安权重护盘，指数关键点位的支撑作用凸显</h3><br><p>全国快递包装绿色转型推进，可降解材料使用率达85%。<br><br> | 来源：<code>www.bengcuan.cn
+</code></p><br><br><h3>北向资金单日买入正泰电器4700万，户用光伏龙头获流入</h3><br><p>陕西历史博物馆暑期预约一票难求，单日接待量突破4万人次。<br><br> | 来源：<code>www.zn-edu.cn
+</code></p><br><br><h3>外资资管举牌固态电解质企业，下一代电池技术获外资重仓</h3><br><p>北向资金大额扫货天合光能7100万，光伏龙头获外资流入。<br><br> | 来源：<code>www.imrok.com.cn
+</code></p><br><br><h3>多地推出城市更新专项政策，年内撬动投资超万亿元</h3><br><p>北交所改革政策落地，北交所概念股集体走强。<br><br> | 来源：<code>www.shutaotc.cn
+</code></p><br><br><h3>云从科技人机协同大模型3.0发布，赋能人机交互场景</h3><br><p>包装纸价格上涨5%，包装板块成本端压力传导顺畅。<br><br> | 来源：<code>www.easome.cn
+</code></p><br><br><h3>外资资管连续加仓风电轴承龙头，大兆瓦轴承获外资重仓</h3><br><p>央行超额续作MLF并降息5BP，流动性宽松信号明确。<br><br> | 来源：<code>www.toolzhe.cn
+</code></p><br><br><h3>F1中国大奖赛上海站落幕，周冠宇获本土最佳第四名创历史</h3><br><p>大模型在气象灾害预警领域应用，预警覆盖率提升至98%。<br><br> | 来源：<code>www.silvertimes.cn
+</code></p><br><br><h3>人民币汇率大幅升值，航空造纸板块集体上涨</h3><br><p>海康威视W底形态确立，底部反转信号明确。<br><br> | 来源：<code>www.ahhaiquan.cn
