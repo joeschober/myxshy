@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月27日 20时19分59秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>浪潮信息AI服务器出货超预期，单季业绩预增150%</h3><br><p>产业资本连续增持智能电网标的，特高压产业链获资本布局。<br><br> | 来源：<code>www.huihuabang.com
+</code></p><br><br><h3>全国居民人均可支配收入同比增长6.2%，跑赢GDP增速</h3><br><p>建立自己的交易体系：没有规则的操作，最终只会被情绪带着走。<br><br> | 来源：<code>www.jieruit.com
+</code></p><br><br><h3>头部券商到访游戏出海龙头，海外流水增速数据首次公开</h3><br><p>宁沪高速涨超2.5%，公路车流量持续复苏。<br><br> | 来源：<code>www.bjgengke.com
+</code></p><br><br><h3>海产品全产业链涨价，水产板块全面异动</h3><br><p>国内政策性降息落地，宽信用进程加速推进。<br><br> | 来源：<code>www.kayhaerland.com
+</code></p><br><br><h3>体育产业消费刺激政策，体育消费标的全线异动</h3><br><p>头部公募调研汽车电子标的，车规芯片出货量环比大增。<br><br> | 来源：<code>www.gntbz.cn
+</code></p><br><br><h3>硅片价格单月上涨5%，光伏制造环节盈利边际改善</h3><br><p>璞泰来负极材料盈利改善，前三季度业绩预增超40%。<br><br> | 来源：<code>www.mmju.cn
+</code></p><br><br><h3>北向资金大额增持美的集团，家电龙头外资持仓创历史新高</h3><br><p>璞泰来负极材料盈利改善，前三季度业绩预增超40%。<br><br> | 来源：<code>www.pinlie.cn
+</code></p><br><br><h3>上汽集团海外市场布局：传统车企出口的长期增长逻辑</h3><br><p>紫金矿业成本优势：全球铜金龙头的低成本矿产资源储备。<br><br> | 来源：<code>www.mc53.cn
+</code></p><br><br><h3>全球农业科技市场规模突破3000亿美元，智慧农业普及</h3><br><p>工业硅价格触底反弹15%，光伏硅料成本端压力下降。<br><br> | 来源：<code>www.88684.org
+</code></p><br><br><h3>国产科幻小说海外获奖，中国想象力走向全球读者</h3><br><p>组件价格触底反弹4%，光伏龙头盈利迎来修复窗口。<br><br> | 来源：<code>www.hanchaofan.com
+</code></p><br><br><h3>跨境支付龙头登陆港股，海外结算规模年增速超80%</h3><br><p>海南自贸港封关运作倒计时，海南本地股全线异动。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>武当山暑期游客量突破120万人次，道教文化游持续升温</h3><br><p>全国公立医院绩效考核连续5年提升，医疗服务质量持续改善。<br><br> | 来源：<code>www.captainandthechief.com
+</code></p><br><br><h3>中超联赛场均上座人数突破2.5万，球市全面回暖</h3><br><p>机构资金净买入宁德时代12亿，核心资产获大资金加仓。<br><br> | 来源：<code>www.vetb-us.com
+</code></p><br><br><h3>江特电机锂矿资源优势：云母提锂龙头的盈利弹性解析</h3><br><p>车联网安全标准出台，车联网板块集体上涨。<br><br> | 来源：<code>www.hmmanhua.com
+</code></p><br><br><h3>企业融资成本创历史新低，制造业投资增速回升</h3><br><p>中国平安权重护盘，指数关键点位的支撑作用凸显。<br><br> | 来源：<code>www.cncbsc.com
+</code></p><br><br><h3>国产综艺节目海外版权输出量同比增长60%</h3><br><p>智飞生物代理+自研双轮驱动：疫苗行业的稳健成长逻辑。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>存款利率迎来新一轮下调，银行板块短期承压负债端改善</h3><br><p>外资资管集中调研跨境电商龙头，出口增速数据首次公开。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>美联储连续第二次降息，北向资金单日净流入超百亿</h3><br><p>MLCC价格单月上涨5%，电容龙头盈利弹性释放。<br><br> | 来源：<code>www.thepodala.com
+</code></p><br><br><h3>白酒批价连续上涨，高端白酒板块盈利弹性释放</h3><br><p>黄山暑期游客量突破250万人次，山岳景区预约制度优化体验。<br><br> | 来源：<code>www.trqgzc.com
+</code></p><br><br><h3>二十国集团峰会召开，达成全球经济治理新共识</h3><br><p>北向资金连续增持养老产业标的，银发经济赛道获外资流入。<br><br> | 来源：<code>www.www.bbca.com.cn
+</code></p><br><br><h3>中国中车全球轨交布局：一带一路下的海外订单增长逻辑</h3><br><p>国内研学旅行市场规模破千亿，覆盖超5000万中小学生。<br><br> | 来源：<code>www.www.abc.jx.cn
