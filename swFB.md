@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月27日 20时20分01秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>5年期LPR超预期下调，地产链迎来全面行情催化</h3><br><p>福耀玻璃异动拉升3.7%，汽车玻璃出口数据亮眼。<br><br> | 来源：<code>www.captainandthechief.com
+</code></p><br><br><h3>伊利股份乳制品龙头优势：国内乳业龙头的品牌与渠道</h3><br><p>政策性降息支持汽车消费，新能源汽车板块迎来定向利好。<br><br> | 来源：<code>www.szdesign-art.com
+</code></p><br><br><h3>全国城市慢行系统建设提速，绿道总里程突破15万公里</h3><br><p>公募基金发行回暖，基金重仓标的集体拉升。<br><br> | 来源：<code>www.vetb-us.com
+</code></p><br><br><h3>贵州茅台站稳1700元关口，白酒板块估值修复开启</h3><br><p>北向资金大额扫货新宙邦7000万，电解液龙头获外资流入。<br><br> | 来源：<code>www.winfae.com
+</code></p><br><br><h3>外资机构集中调研存储芯片龙头，海外订单情况成焦点</h3><br><p>中国女子曲棍球队闯入世界联赛总决赛，实力稳步回升。<br><br> | 来源：<code>www.hmmanhua.com
+</code></p><br><br><h3>全国乡村旅游重点村超千家，带动千万农民家门口就业</h3><br><p>张伟丽卫冕UFC女子草量级冠军，成功守住金腰带。<br><br> | 来源：<code>www.hebccpi.com
+</code></p><br><br><h3>固德威放量上涨7.2%，户用储能业务爆发式增长</h3><br><p>张家界玻璃桥暑期单日客流破3万，网红高空项目持续走红。<br><br> | 来源：<code>www.cncbsc.com
+</code></p><br><br><h3>智能制造政策升级，机器人自动化板块集体上涨</h3><br><p>长三角一体化新规划落地，长三角本地股集体拉升。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>长江经济带发展成效显著，生态优先绿色发展格局形成</h3><br><p>北向资金连续增持核电设备龙头，近1月持仓增幅超25%。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>巴黎奥运会中国代表团斩获42金，位列金牌榜第二位</h3><br><p>美联储降息后美元指数走弱，大宗商品价格迎来反弹。<br><br> | 来源：<code>www.77ttk.com
+</code></p><br><br><h3>中国女子赛艇队世锦赛斩获2金，奥运备战状态火热</h3><br><p>宁德时代单日大涨6.2%，动力电池赛道迎来集体反弹。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>降准降息组合拳落地，大金融板块率先迎来行情催化</h3><br><p>知名私募调研卫星互联网标的，低轨卫星组网计划披露。<br><br> | 来源：<code>www.zkcom-iot.com
+</code></p><br><br><h3>全国土壤污染状况详查完成，受污染耕地安全利用率达95%</h3><br><p>恒瑞医药创新药管线：研发投入进入收获期的业绩展望。<br><br> | 来源：<code>www.thepodala.com
+</code></p><br><br><h3>绿电交易规模翻倍，绿电运营板块集体上涨</h3><br><p>东方盛虹EVA树脂优势：光伏胶膜原料龙头的景气受益。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>超250家机构到访AI大模型企业，ToB付费转化率超预期</h3><br><p>5年期LPR超预期下调，地产链迎来全面行情催化。<br><br> | 来源：<code>www.trqgzc.com
+</code></p><br><br><h3>生活用纸价格上调4%，生活用纸龙头盈利提升</h3><br><p>全国碳排放权交易市场成交额突破200亿元，碳定价机制完善。<br><br> | 来源：<code>www.hnltjy.com
+</code></p><br><br><h3>杀菌剂价格上调10%，农药细分板块迎来行情</h3><br><p>1年期LPR下调10BP，实体经济融资成本进一步下行。<br><br> | 来源：<code>www.www.bbca.com.cn
+</code></p><br><br><h3>存量房贷利率批量下调，银行板块短期冲击可控</h3><br><p>政策性降息支持保障性住房建设，保障房产业链受益。<br><br> | 来源：<code>www.www.gmgs.com.cn
+</code></p><br><br><h3>稀土永磁政策红利：行业供需格局优化下的投资机会</h3><br><p>安琪酵母全球布局：酵母行业全球龙头的份额扩张逻辑。<br><br> | 来源：<code>www.www.abc.jx.cn
+</code></p><br><br><h3>保险资管扎堆调研CRO龙头，创新药管线临床数据披露</h3><br><p>功率半导体价格上调6%，IGBT板块迎来涨价催化。<br><br> | 来源：<code>www.tiantian8.com
+</code></p><br><br><h3>招商银行沿20日均线上行，稳健标的的持仓节奏</h3><br><p>财政部出台减税降费新政，全年为企业减负超1.2万亿元。<br><br> | 来源：<code>www.zxyy999.com
