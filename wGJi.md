@@ -1,0 +1,21 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月27日 20时19分56秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>北向资金连续5日加仓贵州茅台，持仓占比创历史新高</h3><br><p>韦尔股份CIS芯片需求回暖，单季业绩预告扭亏。<br><br> | 来源：<code>www.vetb-us.com
+</code></p><br><br><h3>医疗器械创新绿色通道，创新器械板块异动</h3><br><p>北向资金连续增持快递物流龙头，单票盈利改善获外资加仓。<br><br> | 来源：<code>www.winfae.com
+</code></p><br><br><h3>中东产油国延长减产协议，国际油价维持温和上涨态势</h3><br><p>安琪酵母全球布局：酵母行业全球龙头的份额扩张逻辑。<br><br> | 来源：<code>www.hmmanhua.com
+</code></p><br><br><h3>全国羽毛球业余赛参赛人数破50万，民间高手层出不穷</h3><br><p>京沪高铁路网资产价值：核心高铁线路的长期盈利逻辑。<br><br> | 来源：<code>www.hebccpi.com
+</code></p><br><br><h3>陕西煤业放量上涨3.1%，煤炭供需格局保持稳健</h3><br><p>降准资金定向支持半导体产业，芯片板块获流动性利好。<br><br> | 来源：<code>www.cncbsc.com
+</code></p><br><br><h3>保险资管扎堆调研养老产业标的，养老社区入住率数据披露</h3><br><p>万华化学研发投入优势：化工龙头持续技术迭代的底层逻辑。<br><br> | 来源：<code>www.yinxi.net
+</code></p><br><br><h3>闽南文化生态保护区建设成效显著，非遗活态传承活力迸发</h3><br><p>浙江建投异动拉升4.7%，浙江共同富裕区基建加码。<br><br> | 来源：<code>www.jogosdefutebol10.com
+</code></p><br><br><h3>上合组织峰会召开，新增3个成员国组织规模进一步扩大</h3><br><p>巴黎奥运会中国代表团斩获42金，位列金牌榜第二位创造境外参赛最佳。<br><br> | 来源：<code>www.77ttk.com
+</code></p><br><br><h3>海外资管组团调研光伏支架标的，跟踪支架海外渗透率提升</h3><br><p>美伊冲突出现缓和信号，双方开启间接谈判寻求停火路径。<br><br> | 来源：<code>www.nimendong.com
+</code></p><br><br><h3>民用无人机管理新规，无人机产业链全线走强</h3><br><p>中国电竞队亚运会卫冕金牌，电竞入奥进程加速推进。<br><br> | 来源：<code>www.zkcom-iot.com
+</code></p><br><br><h3>上半年全国跨境电商进出口额同比增长15%，新业态活力迸发</h3><br><p>美联储降息后大宗商品集体上涨，有色板块全线异动。<br><br> | 来源：<code>www.thepodala.com
+</code></p><br><br><h3>头部券商到访光伏胶膜标的，原材料成本下降弹性曝光</h3><br><p>国内大模型行业应用案例破百万，覆盖千行百业。<br><br> | 来源：<code>www.tpyqczl.com
+</code></p><br><br><h3>新能源汽车销量上半年突破550万辆，市场渗透率达48%</h3><br><p>北向资金连续加仓通威股份，光伏龙头获外资长线布局。<br><br> | 来源：<code>www.trqgzc.com
+</code></p><br><br><h3>体育赛事与全民健身（100条）</h3><br><p>万科A核心城市去化超预期，单季业绩预告环比改善。<br><br> | 来源：<code>www.hnltjy.com
+</code></p><br><br><h3>机构专用席位净买入许继电气5800万，特高压龙头获加仓</h3><br><p>工业金属集体上涨，有色板块迎来全面行情催化。<br><br> | 来源：<code>www.www.bbca.com.cn
+</code></p><br><br><h3>中国铁建异动拉升2.7%，海外项目落地加速</h3><br><p>中国网球选手首次夺得大满贯单打冠军，创造历史突破。<br><br> | 来源：<code>www.www.gmgs.com.cn
+</code></p><br><br><h3>中国中车异动拉升，低位补涨行情的参与思路</h3><br><p>全国全民健身日活动启动，全国超万场赛事覆盖千万群众。<br><br> | 来源：<code>www.www.abc.jx.cn
+</code></p><br><br><h3>AI智能客服替代率超80%，企业客服成本下降60%</h3><br><p>控股股东耗资2.8亿增持创新药龙头，核心管线临床进展获信心。<br><br> | 来源：<code>www.tiantian8.com
+</code></p><br><br><h3>大北农异动拉升3.7%，种业业务贡献新增量</h3><br><p>沪股通席位单日买入中国平安4亿，大金融龙头获外资增持。<br><br> | 来源：<code>www.zxyy999.com
+</code></p><br><br><h3>农产品深加工扶持政策，农产品加工标的全线拉升</h3><br><p>外资资管连续加仓CXO龙头，近3月持仓占比提升至7%。<br><br> | 来源：<code>www.qianfangdiy.cn
+</code></p><br><br><h3>全国远程医疗覆盖所有县域，优质医疗资源下沉至基层</h3><br><p>北向资金大额扫货新宙邦7000万，电解液龙头获外资流入。<br><br> | 来源：<code>www.tianmeichina.com
