@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月29日 02时54分46秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>全国研究生考试报名人数首次回落，就业导向成为报考主流</h3><br><p>中兴通讯沿趋势线上行，通信板块的轮动机会。<br><br> | 来源：<code>https://yazhourencheng.cn
+</code></p><br><br><h3>北向资金大额增持中国平安，保险龙头外资持仓创阶段新高</h3><br><p>公募基金发行回暖，基金重仓标的集体拉升。<br><br> | 来源：<code>https://yazhousese.cn
+</code></p><br><br><h3>福耀玻璃异动拉升3.7%，汽车玻璃出口数据亮眼</h3><br><p>武汉长江灯光秀暑期上新，吸引超千万游客观赏打卡。<br><br> | 来源：<code>https://yazhoushipin.cn
+</code></p><br><br><h3>大模型在能源领域应用，电网调度效率提升25%</h3><br><p>国内大模型备案数量破千款，行业应用落地加速。<br><br> | 来源：<code>https://yazhouwang.com.cn
+</code></p><br><br><h3>企业中长期贷款利率创历史新低，制造业资本开支回升</h3><br><p>北向资金举牌冷链物流标的，生鲜配送网络扩张获外资流入。<br><br> | 来源：<code>https://yazhouwuma.com.cn
+</code></p><br><br><h3>全国森林覆盖率提升至24.5%，年新增造林面积超600万公顷</h3><br><p>实控人兜底式增持固态电池企业，员工响应参与比例超90%。<br><br> | 来源：<code>https://yazhouwuma.net.cn
+</code></p><br><br><h3>上半年全国医药制造业利润同比增长13%，创新药贡献突出</h3><br><p>2026年全国体育产业总规模突破4万亿，全民健身蔚然成风。<br><br> | 来源：<code>https://yazhouwumajingpin.cn
+</code></p><br><br><h3>全国碳捕集利用与封存项目年处理能力突破1500万吨</h3><br><p>中拉经贸合作论坛举办，达成超200亿美元合作协议。<br><br> | 来源：<code>https://yazhouwumayiqu.cn
+</code></p><br><br><h3>超210家机构到访AI安防龙头，海外政府订单同比大增</h3><br><p>中航沈飞涨超4.7%，军机交付进度超市场预期。<br><br> | 来源：<code>https://yazhouwumazaixian.cn
+</code></p><br><br><h3>全国森林覆盖率提升至24.5%，年新增造林面积超600万公顷</h3><br><p>外资机构席位净买入江铃汽车4600万，轻卡龙头获外资加仓。<br><br> | 来源：<code>https://yazhouwumazaixianbofanggaoqingwuma.cn
+</code></p><br><br><h3>地方国资战略入股卫星互联网标的，助力星座组网建设</h3><br><p>五粮液品牌价值分析：浓香型白酒龙头的估值逻辑。<br><br> | 来源：<code>https://yazhouwumazaixianguankan.cn
+</code></p><br><br><h3>2026年AI产业赋能经济增长超万亿，成为数字经济核心引擎</h3><br><p>全国酸雨区面积占比降至3.2%，降水质量持续改善。<br><br> | 来源：<code>https://yazhouyi-qu.com.cn
+</code></p><br><br><h3>社保基金现身镁合金龙头，汽车轻量化订单同比翻倍</h3><br><p>1年期MLF利率下调带动全市场利率下行，债券牛市延续。<br><br> | 来源：<code>https://yazhouyi.com.cn
+</code></p><br><br><h3>山西汾酒青花系列批价上涨7%，清香白酒板块景气回升</h3><br><p>桂林山水暑期游客量突破400万人次，经典景区持续焕发活力。<br><br> | 来源：<code>https://yazhouyiji.com.cn
+</code></p><br><br><h3>东方雨虹建材需求回暖，前三季度业绩预增超25%</h3><br><p>浪潮信息放量上涨7.4%，AI服务器出货量超预期。<br><br> | 来源：<code>https://yazhouyijiriben.com.cn
+</code></p><br><br><h3>央行下调再贷款利率，精准支持科技创新领域</h3><br><p>宠物友好景区数量破千，携宠出游成为家庭消费新选择。<br><br> | 来源：<code>https://yazhouyingyuan.cn
+</code></p><br><br><h3>紫金矿业沿5日均线上行，趋势行情下的持仓策略</h3><br><p>制造业PMI连续6个月位于扩张区间，行业景气度持续回升。<br><br> | 来源：<code>https://yazhouyiqu.cn
+</code></p><br><br><h3>全球冷链物流市场规模突破4000亿美元，生鲜贸易增长</h3><br><p>中兴通讯通信技术积累：6G时代的核心竞争力展望。<br><br> | 来源：<code>https://yazhouyiqu.com.cn
+</code></p><br><br><h3>上半年全国战略性新兴产业增加值同比增长9.3%</h3><br><p>超150家机构到访工业机器人标的，产能利用率突破90%。<br><br> | 来源：<code>https://yazhouyiquerqu.com.cn
+</code></p><br><br><h3>QFII大幅加仓光伏支架标的，跟踪支架海外渗透率提升获看好</h3><br><p>京东言犀大模型供应链版上线，助力电商降本增效。<br><br> | 来源：<code>https://yazhouyiquerqusanqu.cn
