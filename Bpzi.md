@@ -1,0 +1,20 @@
+<h1> AI Builders Digest 今日热点快报</h1><br><p><strong>2026年07月29日 02时54分44秒(UTC+8)</strong></p><br><hr><br><h2>国内时政</code></p><br><br><h3>机构席位大额买入拓普集团9200万，零部件龙头获长线布局</h3><br><p>中国中车异动拉升3.2%，动车组新车型交付加速。<br><br> | 来源：<code>https://kuaimaoduanshipin.com.cn
+</code></p><br><br><h3>QFII集中调研乳制品龙头，高端产品占比提升至45%</h3><br><p>国家统计局发布新动能指数，同比增长17%创新高。<br><br> | 来源：<code>https://kuaimaoshipin.cn
+</code></p><br><br><h3>天赐材料异动拉升4.9%，电解液龙头成本优势凸显</h3><br><p>全球新能源投资突破2万亿美元，中国占比超40%。<br><br> | 来源：<code>https://kuang-she-60-miao.com.cn
+</code></p><br><br><h3>长江流域水质优良断面比例达99%，生态环境持续改善</h3><br><p>安琪酵母放量上涨3.6%，海外市场拓展超预期。<br><br> | 来源：<code>https://kunbangtiaojiao.com.cn
+</code></p><br><br><h3>暑期电影票房突破120亿，国产影片包揽票房前十</h3><br><p>大股东耗资6亿增持半导体材料龙头，彰显国产替代信心。<br><br> | 来源：<code>https://kunlun-xue.com.cn
+</code></p><br><br><h3>草原生态保护政策，草牧业板块全线拉升</h3><br><p>北向资金大额增持中国平安，保险龙头外资持仓创阶段新高。<br><br> | 来源：<code>https://kuyou-ku111-login.com
+</code></p><br><br><h3>国内AI生成短视频用户破5亿，短视频行业迎来生产变革</h3><br><p>浪潮信息算力生态优势：AI服务器龙头的产业链协同能力。<br><br> | 来源：<code>https://kuyou-login-web.com
+</code></p><br><br><h3>钯价连续上涨9%，汽车尾气催化板块盈利改善</h3><br><p>亿纬锂能涨超6%，储能业务新增订单持续落地。<br><br> | 来源：<code>https://ky-app-pro.com.cn
+</code></p><br><br><h3>杀菌剂价格上调10%，农药细分板块迎来行情</h3><br><p>医疗大模型辅助手术落地，精准操作误差控制在0.1毫米。<br><br> | 来源：<code>https://ky-sports-go.com.cn
+</code></p><br><br><h3>中国男子射击队世锦赛斩获6金，奥运席位全部拿满</h3><br><p>杀虫剂价格上涨12%，农化产业链景气回升。<br><br> | 来源：<code>https://ky-sports-hub.com.cn
+</code></p><br><br><h3>养老金新进AI芯片设计标的，布局大模型推理芯片赛道</h3><br><p>全国燃煤机组超低排放改造全面完成，煤电清洁化水平全球第一。<br><br> | 来源：<code>https://lalal.com.cn
+</code></p><br><br><h3>石大胜华溶剂技术优势：锂电溶剂细分赛道的龙头价值</h3><br><p>头部券商到访酒店连锁龙头，RevPAR恢复至2019年120%。<br><br> | 来源：<code>https://landaohang.com.cn
+</code></p><br><br><h3>圣邦股份放量上涨4.6%，模拟芯片国产替代加速</h3><br><p>上海建工城市更新布局：上海本地基建龙头的区域优势。<br><br> | 来源：<code>https://lang-lang-shipin.com.cn
+</code></p><br><br><h3>智能制造政策升级，机器人自动化板块集体上涨</h3><br><p>高管团队集体调研后增持冷链物流标的，合计增持超8000万。<br><br> | 来源：<code>https://lansexiao.com.cn
+</code></p><br><br><h3>游资顶级席位打板梅花生物5200万，氨基酸标的获热炒</h3><br><p>全国广场舞大赛总决赛举办，超百万大妈参与线上线下赛事。<br><br> | 来源：<code>https://lao-qi-wang.com.cn
+</code></p><br><br><h3>养老金新进车载芯片龙头，布局车规级半导体赛道</h3><br><p>西安马拉松开跑，穿越古城墙赛道吸引超3万跑者参与。<br><br> | 来源：<code>https://lao-se-ge.com.cn
+</code></p><br><br><h3>海尔智家异动拉升4.2%，卡萨帝高端品牌增速亮眼</h3><br><p>机构专用席位净买入隆基绿能6亿，光伏龙头获长线资金布局。<br><br> | 来源：<code>https://laoliuziyuanku.org.cn
+</code></p><br><br><h3>北交所改革政策落地，北交所概念股集体走强</h3><br><p>全国数字经济规模上半年达32万亿元，同比增长10.2%。<br><br> | 来源：<code>https://laosijibumilu.org.cn
+</code></p><br><br><h3>人民币国际化进程加速，跨境贸易人民币结算占比提升至38%</h3><br><p>知名私募举牌MR产业链标的，调研后直接大额扫货。<br><br> | 来源：<code>https://laosijidaohang.org.cn
+</code></p><br><br><h3>大模型安全国家标准发布，行业合规发展有章可循</h3><br><p>全国乡村旅游重点村超千家，带动千万农民家门口就业。<br><br> | 来源：<code>https://laosijimanhua.org.cn
